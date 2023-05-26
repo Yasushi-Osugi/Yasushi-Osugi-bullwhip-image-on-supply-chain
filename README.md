@@ -1,0 +1,1 @@
+# Yasushi-Osugi-bullwhip-image-on-supply-chain
